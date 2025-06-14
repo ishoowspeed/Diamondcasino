@@ -1,0 +1,2 @@
+# Diamondcasino
+Only for fun
